@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @srkinkhede  
+- 🌱 I’m currently working on my ECBA certification and I am open to BA roles. 
+- 📫 You can reach me at srkinkhede@gmail.com
+- ⚡ Fun fact: In my free time, I like to create art. Not a pro but I find happiness and stress relief when I am in my 🎨 ArtZone.
+- 📸 You can follow me on my Instagram account to follow my Art journey: @artbugshirish
