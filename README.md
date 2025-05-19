@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @srkinkhede  
+- 👋 Hi, I’m Shirish Kinkhede
 - 🌱 I’m currently working on my ECBA certification and I am open to BA roles. 
 - 📫 You can reach me at srkinkhede@gmail.com
 - ⚡ Fun fact: In my free time, I like to create art. Not a pro but I find happiness and stress relief when I am in my 🎨 ArtZone.
